@@ -18,7 +18,7 @@
 
 ---
 ###### `Pd: Jika ingin order langsung aja wa yah`
-###### `By: 0xd_ +62` :stuck_out_tongue_winking_eye:
+###### `By: 0xd_ +6283872378055` :stuck_out_tongue_winking_eye:
 ---
 
 <!---
